@@ -1,4 +1,4 @@
-# Dua Lipa Lyrics
+# Dua Lipa 
 **"New Love"**
 
 ```
